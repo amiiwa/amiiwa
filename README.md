@@ -9,7 +9,7 @@ if you wanna know what fandoms im in just ask. (im too lazy to put here)
 I love making friends but i am also avoidant so i might not talk to you for some time
 (NOT CUZ I HATE YOU i just have problems idk whatswrong with me haha)
 
-uh and i get like really anxious when im talking to some idk why
+uh and i get like really anxious when im talking to someone idk why
 ok thats all hope i can have a lot of friends bai
 
 (ill fix this when im not lazy)

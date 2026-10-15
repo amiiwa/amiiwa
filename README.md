@@ -1,6 +1,6 @@
 IDK HOW PEOPLE USE THIS THJNG pls someone help me
 
-Yahoo everypony im ami or you can call me izzy which ever one
+Yahoo everypony im ami or you can call me izzy or marie which ever one
 
 I won't say my age directly but I'm -18 so dont be crazy weird
 
